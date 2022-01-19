@@ -1,2 +1,0 @@
-# Impressum
-Impressum / Legal Information
